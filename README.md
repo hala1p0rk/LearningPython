@@ -1,2 +1,2 @@
-# Learing Python as a midget
+# Learing Python as a complete numbnut
 This is my short repo ;)🤏↓
